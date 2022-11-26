@@ -1,0 +1,1 @@
+# shigeokublog.github.io
